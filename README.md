@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CJ
+- 👋 Hi, I’m @chengjie.wu
 
 - You can contact me with Email: cmpeace@yeah.net.
 
